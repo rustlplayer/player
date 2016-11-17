@@ -10,7 +10,7 @@ If you make a burlap shirt that looks like it's made out of metal, we're probabl
 
 ## Copyright
 
-If you down own the rights, don't be surprised if it doesn't get accepted. This includes your favorite game logos, photos of celebrities, items from other games etc etc. This is common sense, but it seems like we have to mention it.
+If you don't own the rights, don't be surprised if it doesn't get accepted. This includes your favorite game logos, photos of celebrities, items from other games etc etc. This is common sense, but it seems like we have to mention it.
 
 ## Words and Phrases
 
