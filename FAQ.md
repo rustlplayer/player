@@ -1,3 +1,6 @@
+## My skin isn't visible in any of the lists
+
+You need to accept the Contributor Agreement before your items will be publicly visible, or can be added to the game.
 
 ## Do the artist see any money from the crates or marketplace?
 
